@@ -1,6 +1,6 @@
 PRIVACY NOTICE
 
-Last updated December 21, 2020
+Last updated December 15, 2020
 
 
 
